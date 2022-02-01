@@ -1,0 +1,1 @@
+You can use these templates to beautify your website but you shall provide a do-follow link to our website https://www.realconnected.online/ for use of our templates or you can just contact us for the premium version.
